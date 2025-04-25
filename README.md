@@ -1,6 +1,6 @@
 <p align="center">
   
-  ![fuck](https://files.catbox.moe/n91c5k.jpeg)
+  ![fuck](https://files.catbox.moe/pjose6.jpeg)
 
 ‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ **co**   / ‎ *rowsoul*
 <!--
