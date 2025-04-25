@@ -1,5 +1,7 @@
 
 ![fuck](https://files.catbox.moe/6ifxa2.png)
+
+‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ **co**   / ‎ *rowsoul*
 <!--
 **angelicswirl/angelicswirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
