@@ -1,8 +1,6 @@
 <p align="center">
-  
-  ![fuck](https://files.catbox.moe/kv797n.jpeg)
-
-‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ **co**   / ‎ *rowsoul*
+‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ co   / ‎ rowsoul
+</p>
 <!--
 **angelicswirl/angelicswirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
