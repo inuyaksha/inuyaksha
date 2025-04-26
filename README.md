@@ -1,6 +1,7 @@
 <p align="center">
   
-  ![fuck](https://files.catbox.moe/2wm0h6.jpeg)
+  ![fuck](https://files.catbox.moe/2fxl0g.png)
+  ![shit](https://files.catbox.moe/2wbgqf.png)
   
 ‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ co   / ‎ rowsoul
 </p>
