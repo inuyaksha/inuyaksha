@@ -4,7 +4,7 @@
 </p>
   
 <p align="center">
-‹𝟥    ‎ ‎ ‎ " and you don't seem to understand. "
+‹𝟥    ‎ ‎ ‎ wip
 </p>
 
 <p align="center">
