@@ -4,7 +4,7 @@
 </p>
   
 <p align="center">
-‹𝟥    ‎ ‎ ‎ . ‎ ‎ ‎ co   / ‎inuyaksha
+‹𝟥    ‎ ‎ ‎ " and you don't seem to understand. "
 </p>
 
 <p align="center">
