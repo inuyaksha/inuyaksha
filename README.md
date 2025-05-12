@@ -5,6 +5,6 @@
 </p>
 
 <p align="center">
-  ‹𝟥    ‎ ‎ ‎ wip
+  ‹𝟥    ‎ ‎ ‎ 
   </p>
 
