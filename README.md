@@ -1,8 +1,7 @@
 <p align="center">
   
 <p align="center">
-  <img src="https://files.catbox.moe/027dce.png"/>
-</p>
+c+h is okay, just dont make it weird.
 
 <p align="center">
   ‹𝟥    ‎ ‎ ‎ 
